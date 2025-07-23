@@ -1,4 +1,4 @@
-# Helium-10-Coupon-Codes
+# Helium-10-Coupon-Codes: Get 30% Off Now
 
 Want to grow your Amazon business without breaking the bank? Use **Helium 10 coupon codes** to enjoy up to **30% off for 12 months**! 
 
